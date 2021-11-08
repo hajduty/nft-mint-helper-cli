@@ -1,2 +1,2 @@
 # nft-mint-helper-cli
-microsoft edge button location presser LOL
+pretty dogshit ngl but it works
